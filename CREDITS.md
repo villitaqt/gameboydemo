@@ -1,0 +1,1 @@
+"Nintendo Game Boy (Original 1989)" (https://skfb.ly/o8DRy) by Lokeig is licensed under Creative Commons Attribution-NonCommercial (http://creativecommons.org/licenses/by-nc/4.0/).
